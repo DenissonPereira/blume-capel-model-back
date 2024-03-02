@@ -1,0 +1,2 @@
+# blume capel model back
+ 
